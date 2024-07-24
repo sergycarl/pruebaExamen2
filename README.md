@@ -1,1 +1,0 @@
-te haces bicho bola
